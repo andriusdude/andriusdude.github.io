@@ -1,2 +1,0 @@
-# andriusdude.github.io
-Web
